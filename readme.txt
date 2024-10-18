@@ -1,3 +1,3 @@
 BEST SCRIPTS CASINO, CLICKER, EXCHANGE CRYPTO, EXCHANGERS
 
-TELEGRAM: https://t.me/blacktangledtongue
+TELEGRAM: https://t.me/simo.jibou
